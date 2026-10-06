@@ -7,3 +7,5 @@ We shall conquer this course
 By all means necessary
 
 Shine before 18 months are up
+
+That's the best way to get it done!
